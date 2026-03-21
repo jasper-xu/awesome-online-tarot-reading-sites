@@ -13,6 +13,8 @@ Whether you're seeking daily inspiration, love guidance, or career direction, on
 - [Tarot Reading Apps](#tarot-reading-apps)
 - [Astrology Sites With Tarot](#astrology-sites-with-tarot)
 - [Classic Free Tarot Sites](#classic-free-tarot-sites)
+- [Free Tarot Reading Types](#free-tarot-reading-types)
+- [Further Reading](#further-reading)
 
 ## Free AI-Powered Tarot Readings
 
@@ -78,6 +80,56 @@ Long-established free platforms for straightforward readings.
 
 - [FreeTarot.com](https://freetarot.com) - Features 3-card spreads with unique position interpretations. Uses astrological time and hand position for authentic shuffling.
 - [Tarot of Magic](https://tarotofmagic.com) - Comprehensive resource with guides to best tarot websites and original readings.
+
+## Free Tarot Reading Types
+
+One of the best things about online tarot is the sheer variety of reading types available. Here are some of the most popular categories, with dedicated readings you can try for free.
+
+### Love & Relationships
+
+- [Free Love Tarot Reading](https://tarostarot.com/love-tarot-reading) - AI-powered love tarot focused on romantic questions, current relationship energy, and emotional clarity.
+- [Soulmate Tarot](https://tarostarot.com/soulmate-tarot-reading) - A reading designed to explore soulmate connections and whether someone in your life fits that role.
+- [Twin Flame Reading](https://tarostarot.com/twin-flame-tarot-reading) - Explores the intense dynamics of twin flame relationships, including separation and reunion phases.
+- [Does He Love Me Tarot](https://tarostarot.com/does-he-love-me-tarot) - One of the most-asked tarot questions online, addressed through a focused card spread.
+- [Hidden Feelings Tarot Reading](https://tarostarot.com/hidden-feelings-tarot) - Uncovers what someone may be feeling but not expressing openly in a relationship.
+- [Will I Find Love Tarot](https://tarostarot.com/will-i-find-love-tarot) - A forward-looking spread for anyone wondering when or how love might enter their life.
+- [Relationship Tarot](https://tarostarot.com/relationship-tarot-reading) - Broad relationship spread covering communication, challenges, and the overall health of a partnership.
+
+### Career & Finance
+
+- [Career Tarot Reading](https://tarostarot.com/career-tarot-reading) - Guidance on professional direction, workplace dynamics, and next steps in your career path.
+- [Should I Quit My Job Tarot](https://tarostarot.com/should-i-quit-my-job-tarot) - A pointed spread for anyone sitting on the fence about leaving their current position.
+- [Money & Financial Tarot](https://tarostarot.com/money-tarot-reading) - Focuses on financial energy, spending patterns, and opportunities for abundance.
+- [Career Change Tarot](https://tarostarot.com/career-change-tarot-reading) - Specifically designed for people considering a pivot into a new field or industry.
+
+### Life & Spiritual
+
+- [Shadow Work Tarot Reading](https://tarostarot.com/shadow-work-tarot) - A deep-dive spread that helps surface hidden fears, repressed emotions, and unconscious patterns.
+- [Past Life Tarot](https://tarostarot.com/past-life-tarot-reading) - Explores karmic themes and past-life influences that may be shaping your current experiences.
+- [Life Purpose Reading](https://tarostarot.com/life-purpose-tarot-reading) - For those searching for direction, this spread offers insight into your deeper calling and soul mission.
+- [Manifestation Tarot](https://tarostarot.com/manifestation-tarot) - Pairs tarot with intention-setting to help clarify what you want to attract and what might be blocking it.
+
+### Quick Answers
+
+- [Yes or No Tarot](https://tarostarot.com/yes-no-tarot) - A single-card draw that gives a straightforward yes, no, or maybe answer to any question.
+- [One Card Tarot Pull](https://tarostarot.com/one-card-tarot) - The simplest possible reading — one card, one message. Great for a quick daily check-in.
+- [Three Card Spread](https://tarostarot.com/three-card-reading) - The classic past-present-future layout, ideal for getting a snapshot of any situation.
+- [Daily Tarot Reading](https://tarostarot.com/daily-tarot-reading) - A fresh daily draw to set your intention or reflect on the energy of the day ahead.
+
+## Further Reading
+
+Articles and essays exploring tarot from practical, psychological, and personal perspectives.
+
+- [Tarot as a Thinking Tool](https://medium.com/@dicktracey909/tarot-isnt-magic-but-it-might-be-the-best-thinking-tool-you-re-not-using-5eb590841c65) - A rational look at why tarot works as a decision-making framework, even if you don't believe in divination.
+- [Tarot vs Journaling vs Meditation for Self-Reflection](https://medium.com/@dicktracey909/tarot-vs-journaling-vs-meditation-i-tried-all-three-for-self-reflection-one-actually-stuck-8a99e07fd344) - A hands-on comparison of three popular introspection methods and which one actually stuck.
+- [The 3am Google Search That Changed My Relationship](https://medium.com/@dicktracey909/the-3am-google-search-that-changed-my-relationship-b800ff8c6d68) - A personal story about turning to love tarot during a moment of doubt and what came of it.
+- [I Quit My Job Because of a Tarot Card (Sort Of)](https://medium.com/@dicktracey909/i-quit-my-job-because-of-a-tarot-card-sort-of-48c2393c0ffb) - How a career tarot reading became the nudge someone needed to finally make a professional change.
+- [My Therapist Would Hate This, But It Worked](https://medium.com/@dicktracey909/my-therapist-would-hate-this-but-it-worked-21007783ca59) - An honest account of using shadow work tarot alongside therapy for personal breakthroughs.
+- [Comparing Every Paid Tarot and Astrology Report Service](https://medium.com/@dicktracey909/i-compared-every-paid-tarot-reading-and-astrology-report-service-online-70593a389c57) - A detailed breakdown of paid report platforms, what you actually get, and whether they're worth the money.
+- [Discovering Taro's Tarot — Your Guide to Love](https://medium.com/@dicktracey909/discovering-taros-tarot-your-guide-to-love-b3343ec1b85e) - An introduction to AI-powered love tarot readings and how they differ from traditional online readings.
+- [Your Ultimate Guide to Valentine's Day Tarot Reading](https://medium.com/@dicktracey909/your-ultimate-guide-to-valentines-day-tarot-reading-in-2026-9585c0458012) - Seasonal guide to using tarot for relationship clarity around Valentine's Day.
+- [Best Online Tarot Reading Websites in 2026](https://medium.com/@dicktracey909/best-online-tarot-reading-websites-in-2026-top-picks-for-accurate-readings-57c74fa38c3b) - Roundup of the top-rated tarot platforms with notes on accuracy, features, and pricing.
+- [Best Free Spiritual Tools Online in 2026](https://spirit-tech.hashnode.dev/the-best-free-spiritual-tools-online-in-2026-a-developers-curated-list) - A developer's curated list of the best free spiritual tools available online, from tarot to numerology to dream interpretation.
 
 ---
 
